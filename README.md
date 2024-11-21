@@ -4,7 +4,8 @@
 - 💞️ I’m not looking to collaborate now
 - 📫 How to reach me @Asiya_NK in Telegram
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: start studying and building a career at 44
+- ⚡ Fun fact: After the birth of my children, I had to interrupt my career for many years, now they have grown up and at 44 I am starting almost from scratch
+
 
 <!---
 Asiya-Klishina/Asiya-Klishina is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
